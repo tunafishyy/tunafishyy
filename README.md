@@ -14,5 +14,8 @@ hi hi im dino!! please feel free to int with me IF i don't have "dni" (such as d
 i love megurine luka shes amazing mwah
 
 
+[![Spotify](https://novatorem-spotify.vercel.app/api/spotify)](https://open.spotify.com)
+
+
 ![](https://github.com/user-attachments/assets/83b34a2c-f8fb-4848-b186-2d4f3964514e) 
 ![](https://github.com/user-attachments/assets/2983a8ee-2e28-4424-8ef5-ba516c5c037b) 
