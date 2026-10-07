@@ -13,7 +13,7 @@ hi hi im dino!! please feel free to int with me IF i don't have "dni" (such as d
 
 i love megurine luka shes amazing mwah
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iulsfxh7vfykxt2gvp4j3kulr4&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff96c0)](https://spotify-github-profile.kittinanx.com/api/view?uid=31iulsfxh7vfykxt2gvp4j3kulr4&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iulsfxh7vfykxt2gvp4j3kulr4&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff96c0&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31iulsfxh7vfykxt2gvp4j3kulr4&redirect=true)
 
 ![](https://github.com/user-attachments/assets/83b34a2c-f8fb-4848-b186-2d4f3964514e) 
 ![](https://github.com/user-attachments/assets/2983a8ee-2e28-4424-8ef5-ba516c5c037b) 
