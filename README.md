@@ -3,8 +3,8 @@
 
 ![](https://github.com/user-attachments/assets/ef2209ef-6678-4344-be58-9e61697dc17e) 
 
-![](https://github.com/user-attachments/assets/dddf373f-7307-47a2-85f6-f81d05197a3e) “ah, this song is for losers
-crushed by the reality of '22'.”
+![](https://github.com/user-attachments/assets/dddf373f-7307-47a2-85f6-f81d05197a3e) “ ah, this song is for losers
+crushed by the reality of '22'. ”
 blackjack , megurine luka .
 
 hi hi im dino!! please feel free to int with me IF i don't have "dni" (such as dniuf, dniuid, etc) in my name. i rarely interact first because im a shy loser but im trying not to be rude, promise!
